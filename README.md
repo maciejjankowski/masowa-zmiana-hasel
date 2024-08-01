@@ -1,0 +1,1 @@
+# masowa-zmiana-hasel
